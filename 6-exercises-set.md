@@ -19,7 +19,7 @@ This exercise can be done with a tennis ball, a wine cork, or a massage, instead
 5. stand up, observe your body for 60 to 90 seconds, observe how your breathing, your body posture, any changes
 
 ##### Massage approach: 
-Start massaging the sole of one foot with your thumbs, in movements as if to spread your sole open (like a dough), then from sole to toe, doing the same movements with toes, then then make circular movements with each toe, three times on each direction, then slightly squeeze all toes and foot, then gently puch your foot sole a few times, then make circular movements with you ankle, using your hands to guide them, three times in each direction, and finish the massage with a gentle caress on your sole.
+Start massaging the sole of one foot with your thumbs, in movements as if to spread your sole open (like a dough), then from sole to toe, doing the same movements with toes, then then make circular movements with each toe, three times on each direction, then slightly squeeze all toes and foot, then gently punch your foot sole a few times, then make circular movements with you ankle, using your hands to guide them, three times in each direction, and finish the massage with a gentle caress on your sole.
 
 ### 2. Balancing - flamingo
 
