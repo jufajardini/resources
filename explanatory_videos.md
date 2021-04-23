@@ -20,28 +20,23 @@ helps with eye sight health and prevents some types of headaches.
 ### Spine Flexibility
 
 [Making your spine flexible in a daily basis, is sort of like making sure you keep flexible in ways to deal with
-life]
-(https://www.facebook.com/437527949919640/videos/167107894693002)
+life](https://www.facebook.com/437527949919640/videos/167107894693002)
 
 ### The Flamingo - balancing exercise / core exercise
 
-Activating core muscles helps with [improving Balance between mind and body]
-(https://www.facebook.com/437527949919640/videos/223245048729596)
+Activating core muscles helps with [improving Balance between mind and body](https://www.facebook.com/437527949919640/videos/223245048729596)
 
 ### Activate Spine Muscles
 
-[Using a tennis ball - or another small ball - to massage and activate our spine/ back muscles]
-(https://www.facebook.com/437527949919640/videos/213217913369777)
+[Using a tennis ball - or another small ball - to massage and activate our spine/ back muscles](https://www.facebook.com/437527949919640/videos/213217913369777)
 
 ### Self Support
 
-[Taking care of muscles that help with us a sense of self support]
-(https://www.facebook.com/437527949919640/videos/797921444031011)
+[Taking care of muscles that help with us a sense of self support](https://www.facebook.com/437527949919640/videos/797921444031011)
 
 ### Breathing Exercise
 
-Giving more inner space for our emotions and feelings [help contain/ cope with our emotions]
-(https://www.facebook.com/437527949919640/videos/210319280037855)
+Giving more inner space for our emotions and feelings [help contain/ cope with our emotions](https://www.facebook.com/437527949919640/videos/210319280037855)
 
 #### TODO: 
 * Add short summary for each exercise.
