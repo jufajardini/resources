@@ -52,6 +52,7 @@ The first time you try these, do the exercises with someone else, ask them how d
 ## Find more videos and exercises at
 
 [Bodynamic® International Facebook page](https://www.facebook.com/BodynamicInternational/videos/?ref=page_internal)
+
 [A compilation of Bodynamic Exercises with videos, by me](https://github.com/jufajardini/resources/blob/main/explanatory_videos.md)
 
 #### Disclaimer
