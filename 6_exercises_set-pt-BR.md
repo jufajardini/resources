@@ -1,6 +1,5 @@
 # 6 exercícios práticos
 
-This is a short set of exercises for grounding, coping with anxiety, improving focus, self-centering.
 Esta é uma lista com 6 exercícios rápidos para ajudar a melhorar foco, auto-centramento, sensação de conexão e a lidar com ansiedade, no geral.
 
 **Lembre-se:** Antes de começar, e depois de cada exercício, tente parar alguns segundos para observar seu corpo: sensações, respiração...
